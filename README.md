@@ -16,7 +16,7 @@ que habian visto a Rafa tomandose una caipiriña en un puesto hawaino, después 
 ### Autor: David Galán Valle
 como habia llegado hasta ahi y le respondio que se habia encontrado a un excompañero suyo y le habia recomendado ir a ese bar, despues los alumnos le preguntaron si tenia un yate y Rafa respondio...
 
-### Autor: 
-
+### Autor: Miguel Caballero Vidal
+Que tenia un velero y que podríamos ir con el a dar una vuelta en el velero...
 
 ### Autor: 
