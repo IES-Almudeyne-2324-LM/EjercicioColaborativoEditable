@@ -19,4 +19,8 @@ como habia llegado hasta ahi y le respondio que se habia encontrado a un excompa
 ### Autor: Miguel Caballero Vidal
 que tenía un velero y podríamos ir a dar una vuelta en él. Nos dirigimos a un punto donde se avistaban delfines cuando de pronto…
 
+### Autor: Antonio Valverde Lemos
+Nos encontramo con Vicente que estaba nadando con delfines, en donde nos invito a nadar con ellos en donde aprendimos que...
+
+
 ### Autor: 
