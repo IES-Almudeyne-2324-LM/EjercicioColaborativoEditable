@@ -10,8 +10,8 @@ Las islas canarias ya que Tagua les recomendó ir porque siempre hay buen tiempo
 unos desarrolladores que estaban teletrabajando desde unas tumbonas mirando al mar, ellos les contaron...
 
 
-### Autor: 
-
+### Autor: Jorge Carrasco Arnaz
+que habian visto a Rafa tomandose una caipiriña en un puesto hawaino, después de saber eso los alumnos decidieron ir a vistar a Rafa, y allí le preguntaron...
 
 ### Autor: 
 
