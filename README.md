@@ -29,3 +29,6 @@ Los delfines dan bocados en los codos pero no duelen, cuando terminamos de nadar
 
 ### Autor: Jaime Román Tejero
 Entonces cuando David Peña se va a Alemania, Rafa decide volver con el barco a la isla para poder seguir minando BitCoins en su sotano escondido...
+
+### Autor: Fran Rodriguez Toro
+David peña se enamora de una alemana con sorpresa, juntos compran un coche y se van a dar una vuelta al mundo como Plex, cuando llegan a Estambul, se encuentran con....
