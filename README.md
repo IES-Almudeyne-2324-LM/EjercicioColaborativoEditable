@@ -35,3 +35,6 @@ David peña se enamora de una alemana con sorpresa, juntos compran un coche y se
 
 ### Autor: David Peña Fierro
 Cape y Fran Rodríguez que mantenían un romance a escondidas en un local de kebabs deciden tener un hijo y llamarlo...
+
+### Autor: Sandra Moriana Herrera
+Falito, en honor al maestro Rafael que posibilitó que surgiera la chispa entre ambos. Volviendo a Rafael... en la isla los alumnos de DAW continuaban...
