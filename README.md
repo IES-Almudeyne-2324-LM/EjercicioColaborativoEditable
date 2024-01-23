@@ -23,4 +23,5 @@ que tenía un velero y podríamos ir a dar una vuelta en él. Nos dirigimos a un
 Nos encontramo con Vicente que estaba nadando con delfines, en donde nos invito a nadar con ellos en donde aprendimos que...
 
 
-### Autor: 
+### Autor: Manuel Gómez Páez
+Los delfines dan bocados en los codos pero no duelen, cuando terminamos de nadar entre todos le pagamos un vuelo a david peña para que se vaya a alemania de erasmus.
