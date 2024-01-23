@@ -25,3 +25,7 @@ Nos encontramo con Vicente que estaba nadando con delfines, en donde nos invito 
 
 ### Autor: Manuel Gómez Páez
 Los delfines dan bocados en los codos pero no duelen, cuando terminamos de nadar entre todos le pagamos un vuelo a david peña para que se vaya a alemania de erasmus.
+
+
+### Autor: Jaime Román Tejero
+Entonces cuando David Peña se va a Alemania, Rafa decide volver con el barco a la isla para poder seguir minando BitCoins en su sotano escondido...
