@@ -38,3 +38,6 @@ Cape y Fran Rodríguez que mantenían un romance a escondidas en un local de keb
 
 ### Autor: Sandra Moriana Herrera
 Falito, en honor al maestro Rafael que posibilitó que surgiera la chispa entre ambos. Volviendo a Rafael... en la isla los alumnos de DAW continuaban...
+
+### Autor: Manuel León Fernández
+De descanso por la isla perdidos de la mano de dios, cuando de repente aparecio de nuevo Rafael diciendonos que con el bitcoin se había hecho rico y nos invito a un fieston en el cual...
