@@ -41,3 +41,6 @@ Falito, en honor al maestro Rafael que posibilitó que surgiera la chispa entre 
 
 ### Autor: Manuel León Fernández
 De descanso por la isla perdidos de la mano de dios, cuando de repente aparecio de nuevo Rafael diciendonos que con el bitcoin se había hecho rico y nos invito a un fieston en el cual...
+
+### Autor: Francisco José Fernández Álvarez
+Varios famosos fueron invitados, desde futbolistas hasta cantantes. Uno de estos se enamoro de Mary , este sin pensarlo dos veces le pidio que se casara con ella, y la respuesta de Mary fue que...
