@@ -47,3 +47,6 @@ Varios famosos fueron invitados, desde futbolistas hasta cantantes. Uno de estos
 
 ### Autor: David García Vela
 Ninguna, pues Mary era muda. Pero, no resultó problema pues el famoso era sordo. Tras un percance en el fieston este fue aplazado y decidieron realizarlo en...
+
+### Autor: Juan Triguero Espejo
+Mozambique, ya que Rafa insistió en que conocía un sitio en el que daban el mejor brebaje del mundo entero. El cual estaba hecho de...
