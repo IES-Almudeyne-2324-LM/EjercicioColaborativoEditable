@@ -50,3 +50,6 @@ Ninguna, pues Mary era muda. Pero, no resultó problema pues el famoso era sordo
 
 ### Autor: Juan Triguero Espejo
 Mozambique, ya que Rafa insistió en que conocía un sitio en el que daban el mejor brebaje del mundo entero. El cual estaba hecho de...
+
+### Autor: Estibaliz Cortes Garcia
+Ron Barceló y zumos del Mercadona, por lo que nos encantó a casi todos, porque a algunos de la clase, el Ron le sentó super mal y tuvieron que ir a ...
